@@ -31,7 +31,7 @@ Contact
 Feel free to reach out to me if you have any questions, collaboration ideas, or just want to connect!
 
   - Email: juliusntale30@gmail.com
-  - Instagram: [natchy_.p] 
+  - Instagram: [(https://www.instagram.com/natchy_.p/)] 
 
 Thank you for visiting my GitHub profile. I hope you find my projects interesting and useful. Happy coding!
 
