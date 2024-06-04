@@ -14,7 +14,7 @@ GitHub Profile Details
   - Email: juliusntale30@gmail.com
   - Instagram: [natchy_.p] 
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I love exploring new places and capturing their essence through my camera lens.
+- ⚡ Fun fact: I love exploring new places and capturing their essence through my camera lens
 
 Projects
 
